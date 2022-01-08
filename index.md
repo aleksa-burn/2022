@@ -1,7 +1,7 @@
 # What is AleksaBurn? 🔥
 
 AleksaBurn is the whimsical result of an aging individual who has an upcoming 30th birthday and no wedding plans in sight to use as reason to congregate 
-her spectcular friends all in one location. You are invited to gather in Latvia to celebrate another year around the sun in the style of my pagan ancestors. 
+her spectacular friends all in one location. You are invited to gather in Latvia to celebrate another year around the sun in the style of my pagan ancestors. 
 
 ## Save the Date 🎉
 
