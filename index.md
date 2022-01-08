@@ -44,7 +44,8 @@ These principles are guidelines for how we together can create an absolutely spe
 
 ## Travel 
 
-Riga International Airport (`RIX`) is located just outside the capital city, and can be easily reached via a number of airline routes that often have layovers in other European countries. [Check out flights!](https://www.google.com/search?q=google+flights+riga&oq=google+flights+riga)
+Riga International Airport (`RIX`) is located just outside the capital city, and can be easily reached via a number of airline routes that often have layovers in other European countries. 
+[Check out flights!](https://www.google.com/search?q=google+flights+riga&oq=google+flights+riga)
 
 Additional details/guidance to be provided. 
 
