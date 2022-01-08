@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## Aleksa Burn 2022
 
 You can use the [editor on GitHub](https://github.com/aleksa-burn/2022/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
 
