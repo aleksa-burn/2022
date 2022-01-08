@@ -1,9 +1,9 @@
-## What is AleksaBurn? 
+# What is AleksaBurn? 
 
 AleksaBurn is the whimsical result of an aging individual who has an upcoming 30th birthday and no wedding plans in sight to use as reason to congregate 
 her spectalar friends all in one location. You are invited to gather in Latvia to celebrate another year around the sun in the style of my pagan ancestors. 
 
-### Save the Date
+## Save the Date
 
 Please block your calendars for **July 29-31 (Friday-Sunday)**. Meeting point in **Riga, Latvia**. 
 
@@ -11,7 +11,7 @@ You are welcome to come earlier and/or stay longer, but these 3 days will includ
 
 ![riga](./Riga-Latvia.jpeg)
 
-### Event Details
+## Event Details
 
 Event details, program, and precise location & accommodation –> `TBD` and will be shared as participant numbers are confirmed. 
 
@@ -30,7 +30,7 @@ Activities may include:
 
 ![ligo](./ligo.jpeg)
 
-### Guiding Principles
+## Guiding Principles
 
 These principles are guidelines for how we together can create an absolutely spectular experience. 
 
@@ -42,13 +42,13 @@ These principles are guidelines for how we together can create an absolutely spe
 
 **4. Vaccination:** Please make sure you have your Covid-19 vaccination. Enough said. 
 
-### Travel 
+## Travel 
 
 Riga International Airport (`RIX`) is located just outside the capital city, and can be easily reached via a number of airline routes that often have layovers in other European countries. [Check out flights!](https://www.google.com/search?q=google+flights+riga&oq=google+flights+riga)
 
 Additional details/guidance to be provided. 
 
 
-### Stay in Touch
+## Stay in Touch
 
 Join the [AleksaBurn Whatsapp group](https://chat.whatsapp.com/BZMOTAZ3jgiFiVe3ArxQPK) for receiving regular updates and asking questions.  
