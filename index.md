@@ -53,3 +53,18 @@ Additional details/guidance to be provided.
 ## Stay in Touch 😘
 
 Join the [AleksaBurn Whatsapp group](https://chat.whatsapp.com/BZMOTAZ3jgiFiVe3ArxQPK) for receiving regular updates and asking questions.  
+
+## Photos to Inspire ✨
+![canoe](./canoe.jpeg)
+![mask](./mask.jpeg)
+![beach2](./beach2.jpeg)
+![pancake](./pancake.jpeg)
+![dolls](./dolls.jpeg)
+![camel](./camel.jpeg)
+![beach](./beach.jpeg)
+![mushroom](./mushroom.jpeg)
+![kayak](./kayak.jpeg)
+![food](./food.jpeg)
+![corona](./corona.jpeg)
+
+
