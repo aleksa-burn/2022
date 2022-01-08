@@ -32,7 +32,7 @@ Activities may include:
 
 ## Guiding Principles
 
-These principles are guidelines for how we together can create an absolutely spectular experience. 
+These principles are guidelines for how we together can create a magical weekend experience. 
 
 **1. Radical Inclusion:** We welcome and respect unfamiliar faces. If you want to bring a significant other or friend, they are welcome. 
 
