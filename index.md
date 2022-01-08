@@ -9,6 +9,8 @@ Please block your calendars for **July 29-31 (Friday-Sunday)**. Meeting point in
 
 You are welcome to come earlier and/or stay longer, but these 3 days will include a program of activities, rituals, merrymaking, creative expression, and time to chill. 
 
+![riga](./Riga-Latvia.jpeg)
+
 ### Event Details
 
 Event details, program, and precise location & accommodation –> `TBD` and will be shared as participant numbers are confirmed. 
@@ -25,6 +27,8 @@ Activities may include:
 - Libations
 - Gentle peer pressure
 - Hanging with some of the greatest humans you'll ever meet (hint: that includes you!)
+
+![ligo](./ligo.jpeg)
 
 ### Guiding Principles
 
