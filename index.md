@@ -13,7 +13,7 @@ You are welcome to come earlier and/or stay longer, but these 3 days will includ
 
 ## Event Details
 
-Event details, program, and precise location & accommodation –> `TBD` and will be shared as participant numbers are confirmed. 
+Event details, program, and precise location & accommodation –> **TBD** and will be shared as participant numbers are confirmed. 
 
 Activities may include: 
 - Bonfires
@@ -44,7 +44,7 @@ These principles are guidelines for how we together can create a magical weekend
 
 ## Travel 
 
-Riga International Airport (`RIX`) is located just outside the capital city, and can be easily reached via a number of airline routes that often have layovers in other European countries. 
+Riga International Airport (RIX) is located just outside the capital city, and can be easily reached via a number of airline routes that often have layovers in other European countries. 
 [Check out flights!](https://www.google.com/search?q=google+flights+riga&oq=google+flights+riga)
 
 Additional details/guidance to be provided. 
