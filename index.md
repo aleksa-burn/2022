@@ -1,3 +1,5 @@
+![aleksaburn_logo](./aleksaburn_logo_balts.png)
+
 # What is AleksaBurn? 
 
 AleksaBurn is the whimsical result of an aging individual who has an upcoming 30th birthday and no wedding plans in sight to use as reason to congregate 
