@@ -5,7 +5,7 @@ her spectacular friends all in one location. You are invited to gather in Latvia
 
 ## RSVP/ Expression of Interest (FOMO is real!) 🤩
 
-Please fill out this webform if you are planning to come. Even if you are not 100% sure, we are trying to estimate a participant count, so your latest thoughts are welcome! 
+Please fill out this webform to RSVP. Even if you are not 100% sure, we are trying to estimate a participant count, so your latest thoughts are welcome! 
 
 [https://forms.gle/QjCaYRixroroPMdK8](https://forms.gle/QjCaYRixroroPMdK8)
 
