@@ -3,7 +3,7 @@
 AleksaBurn is the whimsical result of an aging individual who has an upcoming 30th birthday and no wedding plans in sight to use as reason to congregate 
 her spectacular friends all in one location. You are invited to gather in Latvia to celebrate another year around the sun in the style of my pagan ancestors. 
 
-## RSVP (FOMO is real!) 🤩
+## RSVP/ Expression of Interest (FOMO is real!) 🤩
 
 Please fill out this webform if you are planning to come. Even if you are not 100% sure, we are trying to estimate a participant count, so your latest thoughts are welcome! 
 
