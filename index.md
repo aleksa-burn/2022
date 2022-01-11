@@ -13,6 +13,7 @@ Please fill out this webform to RSVP. Even if you are not 100% sure, we are tryi
 ## Save the Date 🎉
 
 Please block your calendars for **July 29-31 (Friday-Sunday)**. Meeting point in **Riga, Latvia**. 
+Part of the event may take place at another location in Latvia outside of Riga, but transport here will be provided. 
 
 You are welcome to come earlier and/or stay longer, but these 3 days will include a program of activities, rituals, merrymaking, creative expression, and time to chill. 
 
