@@ -3,6 +3,13 @@
 AleksaBurn is the whimsical result of an aging individual who has an upcoming 30th birthday and no wedding plans in sight to use as reason to congregate 
 her spectacular friends all in one location. You are invited to gather in Latvia to celebrate another year around the sun in the style of my pagan ancestors. 
 
+## RSVP (FOMO is real!) 🤩
+
+Please fill out this webform if you are planning to come. Even if you are not 100% sure, we are trying to estimate a participant count, so your latest thoughts are welcome! 
+
+[https://forms.gle/QjCaYRixroroPMdK8](https://forms.gle/QjCaYRixroroPMdK8)
+
+
 ## Save the Date 🎉
 
 Please block your calendars for **July 29-31 (Friday-Sunday)**. Meeting point in **Riga, Latvia**. 
@@ -34,7 +41,7 @@ Activities may include:
 
 These principles are guidelines for how we together can create a magical weekend experience. 
 
-**1. Radical Inclusion:** We welcome and respect unfamiliar faces. If you want to bring a significant other or friend, they are welcome. 
+**1. Radical Inclusion:** We welcome and respect friends and unfamiliar faces from all parts of the world, so please come with an open mind and heart. If you want to bring a significant other or friend, they are welcome–just let us know! 
 
 **2. Participation:** Everyone is invited to play. We believe that an incredible weekend experience can occur only through the medium of deeply personal participation. While consent must come first, we welcome active participation in planned events.  
 
