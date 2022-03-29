@@ -15,6 +15,7 @@ Please fill out this webform to RSVP. Even if you are not 100% sure, we are tryi
 Please block your calendars for **July 29-31 (Friday-Sunday)**. Meeting point in **Riga, Latvia**. 
 
 The majority of the activities will take place in **Latgale** (approx. 3 hours outside of Riga), but transport here will be organized. 
+
 Transport back to Riga will be organized for Monday morning. (But get in touch if you want to leave earlier, and we can help plan - there are lots of buses, trains, and other options!)
 
 You are welcome to come earlier and/or stay longer, but these 3 days will include a program of activities, rituals, merrymaking, creative expression, and time to chill. I will be taking time off before and after to hang with you all in Riga or other parts of Latvia :)
