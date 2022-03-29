@@ -31,20 +31,23 @@ Event details, program, and precise location & accommodation –> **TBD** and wi
 The super high-level agenda: 
 
 **Friday** 
-Welcome! 
-Transport to Birķeneļi
-Fun! Music! Fire! All the things! 
+- Welcome! 
+- Transport to Birķeneļi
+- Fun! Music! Fire! All the things! 
 
 **Saturday** 
-Chilling and surprises!
-Fun! Music! Raving!
+- Chilling and surprises!
+- Fun! Music! Raving!
 
 **Sunday** 
-Chilling
-Adventure afternoon in Aglona! 
-(Optional Travel Back to Riga if flying out early Monday)
-Travel back to Birķeneļi
-Fun! Music! Fire! All the things! 
+- Chilling
+- Adventure afternoon in Aglona! 
+- (Optional Travel Back to Riga if flying out early Monday)
+- Travel back to Birķeneļi
+- Fun! Music! Fire! All the things! 
+
+**Monday** 
+- Breakfast and travel onwards
 
 Activities may include: 
 - Bonfires
