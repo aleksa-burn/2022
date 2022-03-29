@@ -13,15 +13,37 @@ Please fill out this webform to RSVP. Even if you are not 100% sure, we are tryi
 ## Save the Date 🎉
 
 Please block your calendars for **July 29-31 (Friday-Sunday)**. Meeting point in **Riga, Latvia**. 
-Part of the event may take place at another location in Latvia outside of Riga, but transport here will be provided. 
 
-You are welcome to come earlier and/or stay longer, but these 3 days will include a program of activities, rituals, merrymaking, creative expression, and time to chill. 
+The majority of the activities will take place in **Latgale** (approx. 3 hours outside of Riga), but transport here will be organized. 
+Transport back to Riga will be organized for Monday morning. (But get in touch if you want to leave earlier, and we can help plan - there are lots of buses, trains, and other options!)
+
+You are welcome to come earlier and/or stay longer, but these 3 days will include a program of activities, rituals, merrymaking, creative expression, and time to chill. I will be taking time off before and after to hang with you all in Riga or other parts of Latvia :)
+
+![image](https://user-images.githubusercontent.com/97361176/160701002-36f2ca86-399e-4e4c-8815-aaecf0e6747d.png)
 
 ![riga](./Riga-Latvia.jpeg)
 
 ## Event Details 🛶
 
 Event details, program, and precise location & accommodation –> **TBD** and will be shared as participant numbers are confirmed. 
+
+The super high-level agenda: 
+
+**Friday** 
+Welcome! 
+Transport to Birķeneļi
+Fun! Music! Fire! All the things! 
+
+**Saturday** 
+Chilling and surprises!
+Fun! Music! Raving!
+
+**Sunday** 
+Chilling
+Adventure afternoon in Aglona! 
+(Optional Travel Back to Riga if flying out early Monday)
+Travel back to Birķeneļi
+Fun! Music! Fire! All the things! 
 
 Activities may include: 
 - Bonfires
