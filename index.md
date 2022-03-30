@@ -14,7 +14,7 @@ Please fill out this webform to RSVP. Even if you are not 100% sure, we are tryi
 
 Please block your calendars for **July 29-31 (Friday-Sunday)**. Meeting point in **Riga, Latvia**. 
 
-The majority of the activities will take place in **Latgale** (approx. 3 hours outside of Riga), but transport here will be organized. Location: [https://goo.gl/maps/wS5dSSi1dg5zSoDL6](https://goo.gl/maps/wS5dSSi1dg5zSoDL6) 
+The majority of the activities will take place in **Latgale** (approx. 3 hours outside of Riga), but transport here will be organized. See exact location: [https://goo.gl/maps/wS5dSSi1dg5zSoDL6](https://goo.gl/maps/wS5dSSi1dg5zSoDL6) 
 
 Transport back to Riga will be organized for Monday morning. (But get in touch if you want to leave earlier, and we can help plan - there are lots of buses, trains, and other options!)
 
@@ -32,7 +32,7 @@ The super high-level agenda:
 
 **Friday** 
 - Welcome! 
-- Transport to Birķeneļi
+- Transport to Berķeneli
 - Fun! Music! Fire! All the things! 
 
 **Saturday** 
@@ -43,7 +43,7 @@ The super high-level agenda:
 - Chilling
 - Adventure afternoon in Aglona! 
 - (Optional Travel Back to Riga if flying out early Monday)
-- Travel back to Birķeneļi
+- Travel back to Berķeneli
 - Fun! Music! Fire! All the things! 
 
 **Monday** 
